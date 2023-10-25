@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ToiletGaming3000
+- 👀 I’m interested in Minecraft Modding, creating minecraft datapacks, coding on Roblox, playing Roblox, and some other things.
+- 🌱 I’m currently learning how to understand coding languages.
+- 💞️ I’m looking to collaborate on a game.
+- 📫 Email: TheLegendaryBacon343@gmail.com | Phone: (480) 232-5465
